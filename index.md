@@ -1,1 +1,36 @@
+# 2023年4月30日主日信息
+# 主题：你的信心放在何处
+# 经文：撒母耳记上4章
+# 讲员：侯弟兄
+<audio controls src="./你的信心放在何处.mp3"></audio>
+![image](https://user-images.githubusercontent.com/91267933/235336972-7f83c1b3-213e-4249-9ab6-11fc02b708f4.png)
+![image](https://user-images.githubusercontent.com/91267933/235336975-fa5bb6de-4f80-4da2-8439-bbdc17a10ac9.png)
+![image](https://user-images.githubusercontent.com/91267933/235336977-cff543ed-c4cc-4448-9c65-3cec751c6e79.png)
+![image](https://user-images.githubusercontent.com/91267933/235336981-04fa7b68-a303-4713-9c6e-2c0e861d7ba5.png)
+![image](https://user-images.githubusercontent.com/91267933/235336984-7135ea6f-25a5-4738-ab23-fd858ede879b.png)
+![image](https://user-images.githubusercontent.com/91267933/235336987-82a8fff7-70d8-47f9-b471-5d7fd090f768.png)
+![image](https://user-images.githubusercontent.com/91267933/235336988-78b44833-9b4f-4efb-a1bf-aac833d17744.png)
+![image](https://user-images.githubusercontent.com/91267933/235336994-f96fb1b1-a9fe-4ed5-b7d0-e8caf7cad1ba.png)
+![image](https://user-images.githubusercontent.com/91267933/235336996-f1dc48fe-8b6c-491e-9700-393aa0290598.png)
+![image](https://user-images.githubusercontent.com/91267933/235336998-165f7401-b4b6-4b54-8900-2e12d5e0c52c.png)
+![image](https://user-images.githubusercontent.com/91267933/235337001-41ec3ed4-138f-42b7-b23d-a6707dd44d59.png)
+![image](https://user-images.githubusercontent.com/91267933/235337004-ec1cf582-320f-4547-9656-e545389d9d18.png)
+![image](https://user-images.githubusercontent.com/91267933/235337007-d35c6fe5-21e9-41f0-bc42-337595711c60.png)
+![image](https://user-images.githubusercontent.com/91267933/235337010-7bf63107-6ddc-46ff-b1b6-798fc445337f.png)
+![image](https://user-images.githubusercontent.com/91267933/235337013-2e73b521-4561-492e-92b3-5b23e4767e8a.png)
+![image](https://user-images.githubusercontent.com/91267933/235337018-7220a91f-b046-44f6-9507-5d7385026594.png)
+![image](https://user-images.githubusercontent.com/91267933/235337025-efb50d57-7f12-4d3f-87c4-0150382d044e.png)
+![image](https://user-images.githubusercontent.com/91267933/235337028-192810ae-5fb3-4c01-8cf0-9b83a24f30b4.png)
+![image](https://user-images.githubusercontent.com/91267933/235337031-d3c7f237-a593-4f75-b6f0-054d70697bb3.png)
+![image](https://user-images.githubusercontent.com/91267933/235337034-be4ce715-6b56-4c13-81ce-d402f6c23c1c.png)
+![image](https://user-images.githubusercontent.com/91267933/235337042-e7d6c2c7-12a0-4210-af00-568796a97bd7.png)
+![image](https://user-images.githubusercontent.com/91267933/235337046-334a7683-1e11-4946-b5ab-7986db5e9a9b.png)
+![image](https://user-images.githubusercontent.com/91267933/235337053-17377ff9-1fd5-44b9-96f8-3917ebfd1623.png)
+![image](https://user-images.githubusercontent.com/91267933/235337060-a513529a-ea5a-446a-a16d-4e0545a1d678.png)
+![image](https://user-images.githubusercontent.com/91267933/235337061-e51de149-f598-47fe-83e0-e8ccb5faf481.png)
+![image](https://user-images.githubusercontent.com/91267933/235337064-8beeb519-c871-4cbb-9767-a41dd55ec197.png)
+![image](https://user-images.githubusercontent.com/91267933/235337065-78382ef4-6402-49ce-8c0d-4de8c3e81aec.png)
+![image](https://user-images.githubusercontent.com/91267933/235337067-88a40bf0-60ea-4aa1-b314-6105e26b2f8e.png)
+![image](https://user-images.githubusercontent.com/91267933/235337068-1bed1009-72af-446d-aa0a-62d2726e8887.png)
+![image](https://user-images.githubusercontent.com/91267933/235337073-b3eacb85-7958-4e3c-acec-20e25f10a918.png)
 
